@@ -1,2 +1,2 @@
-# Hi there, I am Maleyka
+# Hi there👋 I am Maleyka
 Welcome to my GitHub profile
